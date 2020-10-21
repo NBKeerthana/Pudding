@@ -1,0 +1,1 @@
+Pudding is a type of dessert. In Commonwealth countries these puddings are known as custards (or curds) if they are egg-thickened, as blancmange if starch-thickened, and as jelly if gelatin-based
